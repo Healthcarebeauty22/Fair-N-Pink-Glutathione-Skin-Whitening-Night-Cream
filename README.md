@@ -1,1 +1,2 @@
 # Fair-N-Pink-Glutathione-Skin-Whitening-Night-Cream
+Fair n Pink Skin Whitening Cream makes your skin glowing, bright, radiant, and smooth. <a href="https://https://www.healthcarebeauty.in/shop/fair-n-pink-glutathione-skin-whitening-night-cream">Fair N Pink Glutathione Skin Whitening Night Cream</a> is the natural ingredient product that triggers the dark spot and blemishes the scars on the skin. It is a 100% safe and original product of Healthcarebeauty that provides you with healthy fair skin. free delivery available all over India .
